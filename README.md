@@ -5,4 +5,4 @@
 
 - :wilted_flower: cwb :wilted_flower:
 
-- ✨ beatriz.paixao.silva@escola.pr.gov.br ✨
+- :dizzy: beatriz.paixao.silva@escola.pr.gov.br :dizzy:
