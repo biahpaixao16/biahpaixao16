@@ -5,4 +5,4 @@
 
 - ✨ cwb ✨
 
-  ✨ beatriz.paixao.silva@escola.pr.gov.br ✨
+- ✨ beatriz.paixao.silva@escola.pr.gov.br ✨
